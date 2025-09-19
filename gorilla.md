@@ -1,2 +1,0 @@
-# gorilla
-I am Gorilla 🦍🦍🦍🦍
